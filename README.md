@@ -1,4 +1,5 @@
 Antonio Fagundes
-Gloria Pires
+Fernanda Montenegro
 Tiririca
 Aqui eram os games
+Fabio Assunção
